@@ -28,4 +28,8 @@ Higher delinquency among renters vs homeowners
 
 Would love to hear feedback from the community on how this can be further improved or extended (e.g., predictive insights for churn/default risk). 🚀
 
-#PowerBI #DataAnalytics #Dashboard #Finance #BusinessIntelligence
+https://1drv.ms/i/c/9da423724fc388a5/EaNOLFdhdY9MmOAW9XD8NKgBUxjEbshwqYkicptD0TKtjg?e=ZSKTd9 
+
+
+
+
